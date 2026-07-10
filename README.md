@@ -1,0 +1,1 @@
+# UAS-KecerdasanBuatan-2406051-MelishaAyuFitria
